@@ -17,7 +17,7 @@ After Class | due at NOON on | Link to Minute Paper Form | Link to Dr. Love's Fe
 7 (02-06) | 2024-02-07 | <https://bit.ly/432-2024-min-07> | <https://bit.ly/432-2024-min-07-feedback>
 9 (02-13) | 2024-02-14 | <https://bit.ly/432-2024-min-09> | <https://bit.ly/432-2024-min-09-feedback>
 11 (02-20) | 2024-02-21 | <https://bit.ly/432-2024-min-11> | <https://bit.ly/432-2024-min-11-feedback>
-15 (03-05) | 2024-03-06 | <https://bit.ly/432-2024-min-15> | To come.
+15 (03-05) | 2024-03-06 | <https://bit.ly/432-2024-min-15> | <https://bit.ly/432-2024-min-15-feedback>
 17 (03-19) | 2024-03-20 | To come. | To come.
 19 (03-26) | 2024-03-27 | To come. | To come.
 21 (04-02) | 2024-04-03 | To come. | To come.
