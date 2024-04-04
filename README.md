@@ -20,7 +20,7 @@ After Class | due at NOON on | Link to Minute Paper Form | Link to Dr. Love's Fe
 15 (03-05) | 2024-03-06 | <https://bit.ly/432-2024-min-15> | <https://bit.ly/432-2024-min-15-feedback>
 17 (03-19) | 2024-03-20 | <https://bit.ly/432-2024-min-17> | <https://bit.ly/432-2024-min-17-feedback>
 19 (03-26) | 2024-03-27 | <https://bit.ly/432-2024-min-19> | <https://bit.ly/432-2024-min-19-feedback>
-21 (04-02) | 2024-04-03 | <https://bit.ly/432-2024-min-21> | To come.
+21 (04-02) | 2024-04-03 | <https://bit.ly/432-2024-min-21> | <https://bit.ly/432-2024-min-21-feedback>
 24 (04-16) | 2024-04-17 | To come. | To come.
 
 - You'll need to be logged into Google via CWRU to complete the Minute Papers.
